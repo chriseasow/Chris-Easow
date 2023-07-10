@@ -63,7 +63,7 @@ Feel free to explore my repositories to find more details about these projects. 
 
 I'm always excited to connect with fellow designers, music producers, and creatives. You can reach me through the following channels:
 
-- Email: chriseasow@pm.me 📧
+- Email: chriseasow@tutamail.com 📧
 - Portfolio: Still development 💼
 - LinkedIn: www.linkedin.com/in/chriseasow 🔗
 - SoundCloud/Spotify: https://soundcloud.com/themoxiee🎵🎧
