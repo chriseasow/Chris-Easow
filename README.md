@@ -65,7 +65,7 @@ I'm always excited to connect with fellow designers, music producers, and creati
 
 - Email: chriseasow@pm.me 📧
 - Portfolio: Still development 💼
-- LinkedIn: https://www.linkedin.com/in/chris-easow-046b50220/ 🔗
+- LinkedIn: www.linkedin.com/in/chriseasow 🔗
 - SoundCloud/Spotify: https://soundcloud.com/themoxiee🎵🎧
 
 Please feel free to reach out if you have any questions, collaboration ideas, or if you simply want to chat about design, music, or anything creative. I'm looking forward to hearing from you! 📩🎵
