@@ -1,5 +1,5 @@
 # Personal README
-
+![visitors](https://visitor-badge.glitch.me/badge?page_id=chriseasow.chriseasow)
 ## Hello, I'm Chris Varughese Easow (The Moxie) 👋
 
 Welcome to my GitHub profile! I'm excited to have you here. This README serves as an introduction to my work as a first-year design student at the National Institute of Design (NID) and as a music producer. It showcases my creative pursuits in both fields. If you have any questions or need additional information, please feel free to reach out to me. 🎉
