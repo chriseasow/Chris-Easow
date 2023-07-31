@@ -1,4 +1,5 @@
-# Personal README - Chris Varughese Easow (The Moxie) 👋
+# Personal README - Chris Varughese Easow (The Moxie) ![Waving Hand](https://cdn.jsdelivr.net/gh/Readme-Workflows/Readme-Icons@main/icons/gifs/wave.gif)
+
 
 ![visitors](https://visitor-badge.glitch.me/badge?page_id=chriseasow.chriseasow)
 
