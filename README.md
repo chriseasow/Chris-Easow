@@ -82,7 +82,7 @@ Feel free to explore my repositories to find more details about these projects. 
 
 I'm always excited to connect with fellow designers, music producers, and creatives. You can reach me through the following channels:
 
-- **Email**: chriseasow@tutamail.com 📧
+- **Email**: chriseasowbizz@skiff.com 📧
 - **Portfolio**: Still in development 💼
 - **LinkedIn**: [www.linkedin.com/in/chriseasow](https://www.linkedin.com/in/chriseasow) 🔗
 - **SoundCloud/Spotify**: [soundcloud.com/themoxiee](https://soundcloud.com/themoxiee) 🎵🎧
